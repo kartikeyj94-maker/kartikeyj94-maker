@@ -33,7 +33,7 @@ My goal is to become someone who can understand a commercial problem, design a t
 - MBA from TIAS School for Business and Society, Netherlands.
 - Background in healthcare technology, partnerships and revenue operations.
 - Interested in GTM Engineering, RevOps systems, AI deployment and Forward Deployed Engineering.
-- Outside work: padel, pub quizzes, investing and volunteering.
+- Outside work: padel/pickleball, game nights, investing and poker.
 
 ### 🔗 Follow my progress
 
